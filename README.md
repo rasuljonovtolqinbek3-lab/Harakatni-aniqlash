@@ -1,0 +1,1 @@
+# Harakatni-aniqlash
